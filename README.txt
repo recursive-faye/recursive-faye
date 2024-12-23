@@ -1,3 +1,4 @@
-Hi,
+Hey, I'm Faye
 
-I'm Faye
+Check out some of the projects I'm working on :3
+
